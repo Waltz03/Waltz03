@@ -8,7 +8,8 @@
 
 3. Bobby Chan
 
-![alt text](![anatoly-moskvin-doll](https://user-images.githubusercontent.com/122340938/212211209-6a8df9ab-5323-40cb-aa19-5e2e5313f05b.jpg))
+![anatoly-moskvin-doll](https://user-images.githubusercontent.com/122340938/212212068-cdc73386-5993-4c1c-a5ee-2c96f74aaa01.jpg)
+
 ----------
 [facebook](https://www.facebook.com)
 
